@@ -1,5 +1,0 @@
-# Strogonoff
-
-### Ingredientes
-
-- 
